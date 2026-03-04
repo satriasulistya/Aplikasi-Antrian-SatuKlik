@@ -8,6 +8,7 @@ Kelompok AREx :
 - Satria Sulistya Putra
 
 
+
 Link Google Docs : https://docs.google.com/document/d/1YwPC8MLNOB75JCDYo3GSRTM0xaJvxyj-aXwKjmB63yU/edit?usp=sharing
 
 Link Canva       : https://www.canva.com/design/DAHCZQDyXlE/nyTNr6He75GEYue1egyVcA/edit?utm_content=DAHCZQDyXlE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
