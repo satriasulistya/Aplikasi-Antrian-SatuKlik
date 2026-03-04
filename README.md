@@ -1,4 +1,4 @@
-# manajemen-antrian-klinik
+# manajemen-antrian-klinik-SatuKlik
 Repository ini untuk pengumpulan tugas Rekayasa Piranti Lunak.
 
 Kelompok AREx :
